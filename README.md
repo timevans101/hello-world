@@ -1,5 +1,5 @@
 # hello-world
-i have now idea what im doing
+i have no idea what im doing
 literally
 deep end-->
 ----------->me
